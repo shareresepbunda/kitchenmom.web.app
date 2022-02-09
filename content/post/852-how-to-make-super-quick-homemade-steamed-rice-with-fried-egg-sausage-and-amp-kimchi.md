@@ -1,0 +1,83 @@
+---
+description: "How to Make Super Quick Homemade Steamed Rice with Fried Egg, Sausage &amp;amp; Kimchi"
+title: "How to Make Super Quick Homemade Steamed Rice with Fried Egg, Sausage &amp;amp; Kimchi"
+slug: 852-how-to-make-super-quick-homemade-steamed-rice-with-fried-egg-sausage-and-amp-kimchi
+date: 2021-08-25T11:21:41.833Z
+image: https://img-global.cpcdn.com/recipes/e4541093eaeb4143/680x482cq70/steamed-rice-with-fried-egg-sausage-kimchi-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/e4541093eaeb4143/680x482cq70/steamed-rice-with-fried-egg-sausage-kimchi-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/e4541093eaeb4143/680x482cq70/steamed-rice-with-fried-egg-sausage-kimchi-recipe-main-photo.jpg
+author: Elizabeth Curtis
+ratingvalue: 4.1
+reviewcount: 32129
+recipeingredient:
+- " steamed rice If you have leftovers you might like to microwave a single serving with a damp paper towel covering it"
+- " fried egg"
+- " fried sausage or hot dog or bacon"
+- " soy sauce for drizzling"
+- " toasted sesame oil for drizzling"
+- " chopped green onions for garnish"
+- " kimchi"
+recipeinstructions:
+- "Put one serving of rice in a medium bowl (if leftovers, heat it up in a microwave with a damp paper towel on top, which will moisten and fluff the rice again)."
+- "Top with egg and whatever your choice of meat product. (To make a sunny side up egg, I start with a lightly oiled preheated medium-low pan. Starting at a lower heat will give your whites more time to cook through before they start burning.) You can throw your sliced sausage on the other side of the pan and let that fry while the egg&#39;s going."
+- "Drizzle with 1 to 2 teaspoons of soy sauce and toasted sesame oil, sprinkle with chopped green onions, get you some kimchi, and there you have it!"
+- "My kimchi recipe if you&#39;d like to try your hand at homemade: https://cookpad.com/us/recipes/1567994-kimchi-easier-than-you-think"
+- "Enjoy! :)"
+categories:
+- Recipe
+tags:
+- steamed
+- rice
+- with
+
+katakunci: steamed rice with 
+nutrition: 295 calories
+recipecuisine: American
+preptime: "PT17M"
+cooktime: "PT34M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+![Steamed Rice with Fried Egg, Sausage &amp; Kimchi](https://img-global.cpcdn.com/recipes/e4541093eaeb4143/680x482cq70/steamed-rice-with-fried-egg-sausage-kimchi-recipe-main-photo.jpg)
+
+Hello everybody, I hope you are having an amazing day today. Today, I'm gonna show you how to make a special dish, steamed rice with fried egg, sausage &amp; kimchi. One of my favorites. For mine, I'm gonna make it a bit tasty. This is gonna smell and look delicious.
+
+Steamed Rice with Fried Egg, Sausage &amp; Kimchi is one of the most favored of recent trending meals on earth. It's appreciated by millions daily. It is simple, it's fast, it tastes delicious. They are fine and they look fantastic. Steamed Rice with Fried Egg, Sausage &amp; Kimchi is something which I have loved my entire life.
+
+Ingredients of Steamed Rice with Fried Egg, Sausage &amp; Kimchi. You need of steamed rice (If you have leftovers, you might like to microwave a single serving with a damp paper towel covering it.). Prepare of fried sausage (or hot dog or bacon). You need of soy sauce for drizzling.
+
+
+To begin with this recipe, we must prepare a few ingredients. You can cook steamed rice with fried egg, sausage &amp; kimchi using 7 ingredients and 5 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Steamed Rice with Fried Egg, Sausage &amp; Kimchi:
+
+1. Get  steamed rice (If you have leftovers, you might like to microwave a single serving with a damp paper towel covering it.)
+1. Prepare  fried egg
+1. Get  fried sausage (or hot dog or bacon)
+1. Get  soy sauce for drizzling
+1. Prepare  toasted sesame oil for drizzling
+1. Make ready  chopped green onions for garnish
+1. Get  kimchi
+
+
+Place the fried egg on top of the rice. Chop up sausage and toss it in the bowl. Just before eating, use a fork and knife to cut the egg up into small pieces and let the yolk run over the rice. With sausages and eggs, this tasty fried rice is a meal by itself. 
+
+<!--inarticleads2-->
+
+##### Instructions to make Steamed Rice with Fried Egg, Sausage &amp; Kimchi:
+
+1. Put one serving of rice in a medium bowl (if leftovers, heat it up in a microwave with a damp paper towel on top, which will moisten and fluff the rice again).
+1. Top with egg and whatever your choice of meat product. (To make a sunny side up egg, I start with a lightly oiled preheated medium-low pan. Starting at a lower heat will give your whites more time to cook through before they start burning.) You can throw your sliced sausage on the other side of the pan and let that fry while the egg&#39;s going.
+1. Drizzle with 1 to 2 teaspoons of soy sauce and toasted sesame oil, sprinkle with chopped green onions, get you some kimchi, and there you have it!
+1. My kimchi recipe if you&#39;d like to try your hand at homemade: https://cookpad.com/us/recipes/1567994-kimchi-easier-than-you-think
+1. Enjoy! :)
+
+
+Just before eating, use a fork and knife to cut the egg up into small pieces and let the yolk run over the rice. With sausages and eggs, this tasty fried rice is a meal by itself. Customize it with your favorite veggies! If there is one dish that I make a few times a week (yes, a week not a month) it has to be Sinangag or Fried Rice. Add the rice to wok firstly to stir fry until they separate with each other (use the slice to break any chunks). 
+
+So that's going to wrap it up with this exceptional food steamed rice with fried egg, sausage &amp; kimchi recipe. Thanks so much for your time. I'm confident that you can make this at home. There is gonna be more interesting food at home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, colleague and friends. Thanks again for reading. Go on get cooking!

@@ -1,0 +1,113 @@
+---
+description: "Recipe of Super Quick Homemade Japanese Custard Pudding"
+title: "Recipe of Super Quick Homemade Japanese Custard Pudding"
+slug: 179-recipe-of-super-quick-homemade-japanese-custard-pudding
+date: 2021-03-13T12:42:12.177Z
+image: https://img-global.cpcdn.com/recipes/6443000f5f4a883f/680x482cq70/japanese-custard-pudding-recipe-main-photo.jpg
+thumbnail: https://img-global.cpcdn.com/recipes/6443000f5f4a883f/680x482cq70/japanese-custard-pudding-recipe-main-photo.jpg
+cover: https://img-global.cpcdn.com/recipes/6443000f5f4a883f/680x482cq70/japanese-custard-pudding-recipe-main-photo.jpg
+author: Alta Willis
+ratingvalue: 5
+reviewcount: 47578
+recipeingredient:
+- " Caramel"
+- " Granulated sugar"
+- " Water"
+- " Boiling water"
+- " Egg Mixture"
+- " eggs"
+- " Sugar"
+- " Milk"
+- " Vanilla extract paste or oil"
+- " Tools"
+- " Pot"
+- " trays one small enough to fit in the other"
+- " Ladle"
+- " Whisk"
+- " Something to mix with wooden spoons silicone spatula etc"
+- " Sifter"
+recipeinstructions:
+- "Preheat the oven to 300°F"
+- "Let’s make the caramel. In a pot that will be big enough to hold all of the milk, add the sugar and on medium heat. When the pot heats up a little, pour in your tiny bit of water. It should sizzle a little bit and bubble. The water will get soaked up by the sugar. Don’t touch, don’t mix."
+- "Let the pot sit on medium heat without mixing it. You can move it around by moving the pot but try not to stir. If there are any large sugar clumps, you can push that in, but don’t stir. Wait until it becomes a little brown. Prepare the boiling water."
+- "When the whole thing becomes a dark brown, turn off the heat, and quickly pour in the hot water. It will sizzle and smoke and splash a little bit so put a lid on the pot. When the splashing and sizzling has gone down, take the lid off. Check the consistency of the caramel. If it is still a bit fluid, keep resting it. Onces it thicken, the caramel is done. You want it to be a bit burnt to get that bitter-sweet flavour."
+- "Once the caramel thickens, pour it into a smaller tray. It will be really thick and paste like, but spread it out as much as you can before it hardens. It’s okay if it’s not completely spread, it will spread in the oven."
+- "Now we’ll make the egg mixture for the pudding. Take the pot you used for the caramel and put it back on the stovetop. With all the caramel remnants still on it, pour in the milk and sugar. Stir on medium to low heat, gradually dissolving the caramel and sugar into the milk."
+- "While the milk is heating up, crack 8 whole eggs in a bowl and whisk."
+- "When the milk comes to a simmer, take it off the heat and pour it little by little into the eggs, all the while mixing it together. Mix in vanilla."
+- "Make sure the small tray with the caramel sits in the larger tray. Pour boiling water in the larger tray, to create a bath for the smaller tray. Fill large tray up halfway at least. In the small tray, pour the mix mixture through a sifter to get rid of any unmixed eggs, any unwanted remnants."
+- "Place in the oven for 45 minutes. When finished, take it out and let it cool."
+- "Once cooled, wrap with plastic wrap and place the the refrigerator for a couple hours or overnight. After chilled, use an offset spatula or a knife and run it along the edge of the pudding, releasing it off the sides. Then, place a sheet tray or a serving tray on top and flip to remove the pudding. Cut into pieces and enjoy!"
+categories:
+- Recipe
+tags:
+- japanese
+- custard
+- pudding
+
+katakunci: japanese custard pudding 
+nutrition: 101 calories
+recipecuisine: American
+preptime: "PT14M"
+cooktime: "PT59M"
+recipeyield: "1"
+recipecategory: Dinner
+
+---
+
+
+![Japanese Custard Pudding](https://img-global.cpcdn.com/recipes/6443000f5f4a883f/680x482cq70/japanese-custard-pudding-recipe-main-photo.jpg)
+
+Hey everyone, it's me again, Dan, welcome to our recipe site. Today, we're going to prepare a special dish, japanese custard pudding. One of my favorites food recipes. For mine, I'm gonna make it a little bit tasty. This will be really delicious.
+
+
+
+Japanese Custard Pudding is one of the most popular of recent trending meals on earth. It is appreciated by millions daily. It is easy, it's quick, it tastes delicious. They are nice and they look wonderful. Japanese Custard Pudding is something which I have loved my whole life.
+
+
+To begin with this recipe, we must prepare a few ingredients. You can have japanese custard pudding using 16 ingredients and 11 steps. Here is how you cook it.
+
+<!--inarticleads1-->
+
+##### The ingredients needed to make Japanese Custard Pudding:
+
+1. Make ready  Caramel
+1. Prepare  Granulated sugar
+1. Get  Water
+1. Take  Boiling water
+1. Make ready  Egg Mixture
+1. Prepare  eggs
+1. Prepare  Sugar
+1. Take  Milk
+1. Take  Vanilla (extract, paste, or oil)
+1. Prepare  Tools
+1. Take  Pot
+1. Make ready  trays, one small enough to fit in the other
+1. Prepare  Ladle
+1. Get  Whisk
+1. Get  Something to mix with (wooden spoons, silicone spatula, etc.)
+1. Prepare  Sifter
+
+
+
+
+<!--inarticleads2-->
+
+##### Steps to make Japanese Custard Pudding:
+
+1. Preheat the oven to 300°F
+1. Let’s make the caramel. In a pot that will be big enough to hold all of the milk, add the sugar and on medium heat. When the pot heats up a little, pour in your tiny bit of water. It should sizzle a little bit and bubble. The water will get soaked up by the sugar. Don’t touch, don’t mix.
+1. Let the pot sit on medium heat without mixing it. You can move it around by moving the pot but try not to stir. If there are any large sugar clumps, you can push that in, but don’t stir. Wait until it becomes a little brown. Prepare the boiling water.
+1. When the whole thing becomes a dark brown, turn off the heat, and quickly pour in the hot water. It will sizzle and smoke and splash a little bit so put a lid on the pot. When the splashing and sizzling has gone down, take the lid off. Check the consistency of the caramel. If it is still a bit fluid, keep resting it. Onces it thicken, the caramel is done. You want it to be a bit burnt to get that bitter-sweet flavour.
+1. Once the caramel thickens, pour it into a smaller tray. It will be really thick and paste like, but spread it out as much as you can before it hardens. It’s okay if it’s not completely spread, it will spread in the oven.
+1. Now we’ll make the egg mixture for the pudding. Take the pot you used for the caramel and put it back on the stovetop. With all the caramel remnants still on it, pour in the milk and sugar. Stir on medium to low heat, gradually dissolving the caramel and sugar into the milk.
+1. While the milk is heating up, crack 8 whole eggs in a bowl and whisk.
+1. When the milk comes to a simmer, take it off the heat and pour it little by little into the eggs, all the while mixing it together. Mix in vanilla.
+1. Make sure the small tray with the caramel sits in the larger tray. Pour boiling water in the larger tray, to create a bath for the smaller tray. Fill large tray up halfway at least. In the small tray, pour the mix mixture through a sifter to get rid of any unmixed eggs, any unwanted remnants.
+1. Place in the oven for 45 minutes. When finished, take it out and let it cool.
+1. Once cooled, wrap with plastic wrap and place the the refrigerator for a couple hours or overnight. After chilled, use an offset spatula or a knife and run it along the edge of the pudding, releasing it off the sides. Then, place a sheet tray or a serving tray on top and flip to remove the pudding. Cut into pieces and enjoy!
+
+
+
+
+So that is going to wrap it up with this exceptional food japanese custard pudding recipe. Thank you very much for reading. I'm confident you can make this at home. There's gonna be interesting food in home recipes coming up. Don't forget to save this page on your browser, and share it to your family, colleague and friends. Thank you for reading. Go on get cooking!
